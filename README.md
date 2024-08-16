@@ -1,1 +1,0 @@
-# HOW_TO_PLAY_ES
